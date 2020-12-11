@@ -1,1 +1,1 @@
-# UGA.github.io
+My favorite destinations.
